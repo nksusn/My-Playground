@@ -1,0 +1,1 @@
+All payments in cash
